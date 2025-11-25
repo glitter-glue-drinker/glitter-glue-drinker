@@ -4,6 +4,6 @@ ossd system, please be patient at times. please iwc if we dont know you/havent i
 main interests include siv, danganronpa, and limbus among other things
 
 - bird/bug hyperfixations
-- specifically preying mantises and bearded vultures
+- specifically preying mantises and bearded vultures/crows
 - please talk to us about them
 - dinos are also cool
