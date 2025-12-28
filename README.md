@@ -1,13 +1,8 @@
 ## hello !!
 ossd system, please be patient at times. please iwc if we dont know you/havent interacted with you before, we have bad  anxiety. feel free to cuddle/hide at any time, (only if we know you), unless stated otherwise
 
-main interests include minecraft args, horror content, and limbus among other things
+apologies if we come off as rude or insensitive at any time, we usually dont think before saying stuff. a lot of us have bad attachment issues and a tendency to overthink quite a bit,,,
 
-- bird/bug hyperfixations
-- specifically preying mantises and raptors
-- please talk to us about them
-- dinos are also cool
+basic dni criteria + fans of any problematic media, "ragebaiters", or terfs
 
-we dont often think before saying, so we apologize if we come off as insenitive or rude in any way, shape or form. we apologize if we do, please dont take it personally
-
-most of us have bad attachment issues and tend to overthink 
+if any of us do anything to bug you, please please please just tell us instead of getting all upset and angry at someone who probably didnt mean it 
