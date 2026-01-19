@@ -10,3 +10,5 @@ if any of us do anything to bug you, please please please just tell us instead o
 fandom ints : bad things, osc, dw, and phighting int !! mayhaps,,, we have more fandoms too, these are just main ones currently !!
 
 none of us mind if source of any of our fictives interact (minus taph, forsaken DNI if taphs fronting) ! just please be wary if they have a sepcific dni, ie "dni slingshot" or "four dniuf"
+
+ivandrew shippers also dni youre disgusting as hell, disrespectfully.
