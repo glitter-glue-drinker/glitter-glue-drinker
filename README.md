@@ -5,8 +5,7 @@ basic dni criteria + fans of any problematic media, "ragebaiters", or terfs
 
 if any of us do anything to bug you, please please please just tell us instead of getting all upset and angry at someone who probably didnt mean it
 
-fandom ints : bad things, osc, dw, and phighting int !! mayhaps,,, we have more fandoms too, these are just main ones currently !!
 
 none of us mind if source of any of our fictives interact (minus taph, forsaken DNI if taphs fronting) ! just please be wary if they have a sepcific dni, ie "dni slingshot" or "four dniuf"
 
-ivandrew shippers also dni youre disgusting as hell, disrespectfully.
+please check other repositories ^_^ theres a lot of info there!!
