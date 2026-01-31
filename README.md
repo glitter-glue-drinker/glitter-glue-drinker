@@ -8,7 +8,7 @@ pleasepleasePLEASE be patient at times!! were sometimes very slow to process stu
 if any of us do anything to bug you, please please please just tell us instead of getting all upset and angry at someone who probably didnt mean it
 
 
-none of us mind if source of any of our fictives interact (minus taph, forsaken DNI if taphs fronting) ! just please be wary if they have a sepcific dni, ie "dni slingshot" or "four dniuf"
+none of us mind if source of any of our fictives interact (minus a few, if "FANDOM DNI" is there its a good chance they dont want source to interact either) ! just please be wary if they have a sepcific dni, ie "dni slingshot" or "four dniuf"
 
 
 please check other repositories ^_^ theres a lot of info there!!
