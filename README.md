@@ -12,3 +12,6 @@ none of us mind if source of any of our fictives interact (minus a few, if "FAND
 
 
 please check other repositories ^_^ theres a lot of info there!!
+
+
+if we tell you to dni/not do/say something and you keep doing it, dont be surprised if you get called annoying or we're mean to you! boundaries are set for a reason. we dont have many, but the ones we have are for our comfort! if they make you uncomfortable, leave/block us. its very simple to understand!
